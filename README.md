@@ -1,1 +1,1 @@
-# Vnedrenie_IS_project_
+# Vnedrenie_IS_project_Ermagambetov
